@@ -12,6 +12,7 @@
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
+- add mango
 
 
 ## Instructions
@@ -26,6 +27,7 @@
 
 2. **Mix the Fruits:**
    - In a large bowl, gently mix all the prepared fruits together.
+   - mix mango
 
 3. **Add Citrus Juice:**
    - Squeeze the juice of one lime or lemon over the mixed fruits. This not
