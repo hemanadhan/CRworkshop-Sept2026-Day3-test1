@@ -10,7 +10,7 @@
 - 1 apple, cored and chopped
 - 1 orange, peeled and sectioned
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
-  of zing)
+  of zing) add here
 - Fresh mint leaves (optional, for garnish) add more mint
 
 
